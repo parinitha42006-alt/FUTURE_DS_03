@@ -95,10 +95,12 @@ This analysis helps event organizers make **data-driven decisions** to enhance s
 
 ## 📬 Contact
 
-**Sneha Kamatham**  
-📍 Tirupati, Andhra Pradesh  
-✉️ [kamathamsneha27@gmail.com]  
-🔗 LinkedIn: [https://www.linkedin.com/in/kamatham-sneha-51251630b/]  
+**MUDRAGADA PARINITHA DEVI**  
+📍 Rajahmundry, Andhra Pradesh  
+✉️ [parinitha42006@gmail.com]  
+🔗 LinkedIn: [www.linkedin.com/in/parinitha-mudragada-6322a230a
+
+]  
 
 
 ---
